@@ -15,4 +15,4 @@ Our **RATES** are determined by the size of your prints:
 * 30 x 40 : CAD$210
 * 40 x 50 : CAD$330
 
-**Contact us** today at andrew@printnmount.com and have your your photos professionally printed and mounted for less! 
+**Contact us** today and have your your photos professionally printed and mounted for less! 

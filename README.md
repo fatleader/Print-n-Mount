@@ -1,4 +1,4 @@
-Picture this: 
+Picture *this*: 
 
 You want to get your most prized photos printed and mounted, but local imagers charge you an arm, leg, *and* a kidney for their services?
 

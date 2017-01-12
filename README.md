@@ -4,7 +4,7 @@ You want to get your most prized photos printed and mounted but local imagers ch
 
 Here at Print n' Mount, we believe that prints and mounting should be charged as one service. It's rather straightforward: we charge a flat fee for **BOTH** fine-art printing and borderless mounting onto foam board. 
 
-Each print is worked on by skilled hands to ensure that as they will last as long as the high quality acid-free paper and acid-free foam board will allow. This is around 100 years!
+Each print is worked on by skilled hands to ensure that as they will last as long as the high quality acid-free paper and acid-free foam board will allow. We estimate this to be around 100 years!
 
 Our **RATES** are determined by the size of your fine-art prints:
 
